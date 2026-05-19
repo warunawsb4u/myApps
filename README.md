@@ -1,2 +1,2 @@
 # myApps
-My name is waruna
+My name is Sankalpa
